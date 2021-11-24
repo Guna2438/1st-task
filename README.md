@@ -14,4 +14,5 @@
      - Tumuluri
 
 # Task List
-- [Thar car](https://www.carwale.com/mahindra-cars/thar/)
+![Github Light](https://imgd.aeplcdn.com/664x374/n/cw/ec/40087/thar-exterior-right-front-three-quarter-11.jpeg?q=85)
+
