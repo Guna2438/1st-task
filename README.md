@@ -22,6 +22,7 @@
 - na peru neku endhuku :stuck_out_tongue_winking_eye:
 
 ![github](https://c.tenor.com/VwUDYZ_Qn0kAAAAC/brahmi-king.gif)
+![Github Light](https://storage.googleapis.com/gweb-uniblog-publish-prod/original_images/tenor_1.gif)
 
 name|s.no
 ----|------
