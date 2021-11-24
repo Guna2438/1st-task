@@ -14,9 +14,14 @@
      - Tumuluri
 
 # Task List
-[] http://www.amazon.com/Nokia-Unlocked-Retro-Stylish-Phone/dp/B01H41K5SO
+[nokia 3310](http://www.amazon.com/Nokia-Unlocked-Retro-Stylish-Phone/dp/B01H41K5SO)
 
-![Github Dark](https://imgd.aeplcdn.com/664x374/n/wqebgta_1492265.jpg?q=85)
+![Github Dark](https://imgd.aeplcdn.com/664x374/n/wqebgta_1492265.jpg?q=85) 
+ 
+- hello :smile:
+- na peru neku endhuku :stuck_out_tongue_winking_eye:
+
+![github](https://c.tenor.com/VwUDYZ_Qn0kAAAAC/brahmi-king.gif)
 
 name|s.no
 ----|------
