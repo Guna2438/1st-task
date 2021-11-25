@@ -19,7 +19,6 @@
 ![Github Dark](https://imgd.aeplcdn.com/664x374/n/wqebgta_1492265.jpg?q=85) 
  
 - hello :smile:
-- na peru neku endhuku :stuck_out_tongue_winking_eye:
 - totally confused :confused:
 
 ![github](https://c.tenor.com/VwUDYZ_Qn0kAAAAC/brahmi-king.gif)
